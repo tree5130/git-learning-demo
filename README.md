@@ -1,3 +1,3 @@
 # git-learning-demo
 
-拉萨
+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
